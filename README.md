@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Madie2345
+**👋 Hi, I’m @Madie2345**
 
 I am a 15 year old student at Canberra Grammar School in Grade 10.
 - 👀 I’m interested in IT, Music, Basketball and Science.
